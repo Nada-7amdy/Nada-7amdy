@@ -28,7 +28,7 @@
 
 ### 📫 How to reach me
 - **Email:** nadaelmasry.tech@gmail.com
-- **LinkedIn:** www.linkedin.com/in/nada-hamdy-el-masry  
+- **LinkedIn:** www.linkedin.com/in/nada-7amdy  
 
 ### 🎀 Fun fact
 I love books, I love laughing, and I love learning new things every single day ✨  
